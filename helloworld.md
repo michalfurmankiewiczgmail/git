@@ -1,7 +1,13 @@
 # Testy sdfljsdlk
 
-# sdfds angugage
+fdsfdsfdsfds
+sdfdsfds
+dsfsdfdsfdsf
+sdfdsfdsfsdf
+sfdfsdfdssdfds
 
-## Tak sie dobrze pisze
+## Tak sie dobrze pisze to jest wazne
+
+teraz bede pisal tak
 
 dsfdsfdsf
